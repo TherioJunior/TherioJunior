@@ -4,7 +4,7 @@
 - ![German](https://raw.githubusercontent.com/stevenrskelton/flag-icon/master/png/16/country-4x3/de.png) German
 - ![English](https://raw.githubusercontent.com/stevenrskelton/flag-icon/master/png/16/country-4x3/gb.png) English
 
-### Contact:
+### Contact me at:
 - ![Discord](https://camo.githubusercontent.com/095acb6e84b328e842689dc5a9e6203daf994507d60b70d6a3b03dfda920ac7a/68747470733a2f2f692e696d6775722e636f6d2f30303278676e732e706e67) TherioJunior#3643
 
 <!--
