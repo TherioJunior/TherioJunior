@@ -25,10 +25,10 @@
 <br />
 
 ### Contact me at:
-![Discord](https://camo.githubusercontent.com/095acb6e84b328e842689dc5a9e6203daf994507d60b70d6a3b03dfda920ac7a/68747470733a2f2f692e696d6775722e636f6d2f30303278676e732e706e67) TherioJunior#3643
+![Discord](https://camo.githubusercontent.com/095acb6e84b328e842689dc5a9e6203daf994507d60b70d6a3b03dfda920ac7a/68747470733a2f2f692e696d6775722e636f6d2f30303278676e732e706e67) Discord - TherioJunior#3643
 <br />
-![GameSense](https://camo.githubusercontent.com/500ebdd4c994b8ea365dd5385b8aaa04361d44f54d34838ddccd80a9374649a2/68747470733a2f2f67616d6573656e73652e7075622f66617669636f6e2e69636f) [TherioJunior](https://gamesense.pub/forums/profile.php?id=6849)
+![GameSense](https://camo.githubusercontent.com/500ebdd4c994b8ea365dd5385b8aaa04361d44f54d34838ddccd80a9374649a2/68747470733a2f2f67616d6573656e73652e7075622f66617669636f6e2e69636f) GameSense - [TherioJunior](https://gamesense.pub/forums/profile.php?id=6849)
 <br />
-![Steam](https://camo.githubusercontent.com/ce89a685b15f74468547b144d6d811e9e86a6bb0c4e8634b616db0d084439de5/68747470733a2f2f692e696d6775722e636f6d2f52416a5a7251622e706e67) [id/hypnotizable](https://steamcommunity.com/id/hypnotizable/)
+![Steam](https://camo.githubusercontent.com/ce89a685b15f74468547b144d6d811e9e86a6bb0c4e8634b616db0d084439de5/68747470733a2f2f692e696d6775722e636f6d2f52416a5a7251622e706e67) Steam - [id/hypnotizable](https://steamcommunity.com/id/hypnotizable/)
 <br />
-![YouTube](https://camo.githubusercontent.com/f8a3a9071699ab6979d37cd5dea7c71b258ad12f9180994cd57519a5f0e5b26a/68747470733a2f2f7777772e796f75747562652e636f6d2f66617669636f6e2e69636f) [TherioJunior](https://youtube.com/c/UC-dm9tYCKZpgy22NRcTj2oA)
+![YouTube](https://camo.githubusercontent.com/f8a3a9071699ab6979d37cd5dea7c71b258ad12f9180994cd57519a5f0e5b26a/68747470733a2f2f7777772e796f75747562652e636f6d2f66617669636f6e2e69636f) YouTube - [TherioJunior](https://youtube.com/c/UC-dm9tYCKZpgy22NRcTj2oA)
