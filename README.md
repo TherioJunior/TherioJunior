@@ -24,7 +24,7 @@
 <br />
 
 ### Information:
-- In my freetime I like helping ![Envy](https://github.com/curtime/)
+- In my freetime I like helping [Envy](https://github.com/curtime/)
 
 ### Contact me at:
 - ![Discord](https://camo.githubusercontent.com/095acb6e84b328e842689dc5a9e6203daf994507d60b70d6a3b03dfda920ac7a/68747470733a2f2f692e696d6775722e636f6d2f30303278676e732e706e67) Discord - TherioJunior#3643
