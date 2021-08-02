@@ -31,4 +31,4 @@
 <br />
 ![Steam](https://camo.githubusercontent.com/ce89a685b15f74468547b144d6d811e9e86a6bb0c4e8634b616db0d084439de5/68747470733a2f2f692e696d6775722e636f6d2f52416a5a7251622e706e67) Steam - [id/hypnotizable](https://steamcommunity.com/id/hypnotizable/)
 <br />
-![YouTube](https://camo.githubusercontent.com/f8a3a9071699ab6979d37cd5dea7c71b258ad12f9180994cd57519a5f0e5b26a/68747470733a2f2f7777772e796f75747562652e636f6d2f66617669636f6e2e69636f) YouTube - [TherioJunior](https://youtube.com/c/UC-dm9tYCKZpgy22NRcTj2oA)
+![YouTube](https://camo.githubusercontent.com/f8a3a9071699ab6979d37cd5dea7c71b258ad12f9180994cd57519a5f0e5b26a/68747470733a2f2f7777772e796f75747562652e636f6d2f66617669636f6e2e69636f) YouTube - [TherioJunior](https://m.youtube.com/channel/UC-dm9tYCKZpgy22NRcTj2oA)
